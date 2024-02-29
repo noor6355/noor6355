@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @noor6355
-- 👀 I’m interested in ...crypto
+- 👀 I’m interested in doing job on crypto
 - 🌱 I’m currently learning  about web3
 - 💞️ I’m looking to collaborate on as a mode
 - 📫 How to reach me 
