@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on as a mode
 - 📫 How to reach me 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: dada nahalo
+- ⚡ Fun fact:
 - 
 
 <!---
