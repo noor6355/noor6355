@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on as a mode
 - 📫 How to reach me 
 - 😄 Pronouns: ...
-- ⚡ Fun fact:
+- ⚡ Fun fact:fk
 - 
 hello everione
 noor6355/noor6355 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
